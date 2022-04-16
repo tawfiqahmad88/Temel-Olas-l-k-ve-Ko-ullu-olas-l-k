@@ -1,0 +1,1 @@
+# Temel-Olas-l-k-ve-Ko-ullu-olas-l-k
